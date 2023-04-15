@@ -1,0 +1,2 @@
+# ECONIMICAL-FREEDOM-ANALYSIS
+eanalysising
