@@ -4,7 +4,5 @@ https://user-images.githubusercontent.com/119795030/232190121-240d6a1a-d5e3-4678
 
 
 
-https://user-images.githubusercontent.com/119795030/232190153-73fbca35-6ec0-41cc-9eb4-846e699c9ff5.mp4
-
 https://github.com/270vishal/ECONIMICAL-FREEDOM-ANALYSIS/blob/54b7c8fe937505dbd4a14bcfe9228754e7aca2f5/README.md# ECONIMICAL-FREEDOM-ANALYSIS
 eanalysising
